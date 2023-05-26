@@ -44,7 +44,7 @@ Looking down at the bone fragments on the table and the lifeless body of Dorothe
 
 "That might have been part of her act as well. How well do we really know Elsa? And if our lives are the target..." Saria added.
 
-"She might have someone working for her," Hildea suggested.
+"She might be working for someone," Hildea suggested.
 
 "There seem to be many people who dislike the role of the 'Featherrun sisters,'" Sithonia remarked.
 
