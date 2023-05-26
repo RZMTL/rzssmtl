@@ -46,7 +46,7 @@ Looking down at the bone fragments on the table and the lifeless body of Dorothe
 
 "She might be working for someone," Hildea suggested.
 
-"There seem to be many people who dislike the role of the 'Featherrun sisters,'" Sithonia remarked.
+"There seem to be many people who dislike the role of the 'Featherrun sisters,'" Saria remarked.
 
 Saria and Hildea joined hands and supplemented Sithonia's opinion. With a half-closed eye in response to their accurate observations, Sithonia nodded towards Ornia.
 
