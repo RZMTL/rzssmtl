@@ -784,13 +784,13 @@ However, Elsa couldn't sustain her emergency evasive maneuvers indefinitely. Mor
 
 "There you go!"
 
-The voices of the twins overlapped as they shouted to Elsa, who dodged the Orthros' bite in mid-air. In an instant, cutting into the edge of Elsa's field of vision, was the spinning blade of death—Saria and Hildea's strike, rotating harmoniously from their signature weapon the Moonring Blade.
+The voices of the twins overlapped as they shouted to Elsa, who dodged the Orthros' bite in mid-air. In an instant, cutting into the edge of Elsa's field of vision, was the spinning blade of death—Saria and Hildea's strike, rotating harmoniously from their signature weapon the Crescent Moon Blade.
 
 "――Huh!"
 
-Quickly, Elsa used one of the corpses scattered on the square. She kicked up the corpse ravaged by the hunting hounds, using it as a shield against the strike of the Moonring Blade. Of course, the attack was not weak enough to be stopped by a corpse. The corpse split in two instantly.
+Quickly, Elsa used one of the corpses scattered on the square. She kicked up the corpse ravaged by the hunting hounds, using it as a shield against the strike of the Crescent Moon Blade. Of course, the attack was not weak enough to be stopped by a corpse. The corpse split in two instantly.
 
-However, seizing upon the momentary delay, Elsa threw herself into the gap of death between Orthros' fangs and the Moonring Blade, gliding along the snowy streets to secure her survival.
+However, seizing upon the momentary delay, Elsa threw herself into the gap of death between Orthros' fangs and the Crescent Moon Blade, gliding along the snowy streets to secure her survival.
 
 "Finally coming down, huh? Is this the real deal?"
 
@@ -838,7 +838,7 @@ Elsa wondered where their confidence came from――
 
 "Because having weaknesses is exactly what that means!"
 
-As they spoke, each supporting the Moonring Blade with one hand, Saria and Hildea indicated something with their intertwined hands. It was the clocktower they had just jumped down from.
+As they spoke, each supporting the Crescent Moon Blade with one hand, Saria and Hildea indicated something with their intertwined hands. It was the clocktower they had just jumped down from.
 
 Elsa followed the direction their hands pointed with her gaze and realized it, sealing her lips as she lost her calm composure.
 
